@@ -1,0 +1,1 @@
+# XbGuard-Lite---O-servidor-100-Gratuito-Para-RGH
