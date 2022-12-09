@@ -7,12 +7,14 @@ video: https://youtu.be/tSQHpufovak
 MOSTRADOS NO VIDEO ACIMA 
 
 👇👇
+XbGuard Lite Release: G9  
+Update: 08/12/22
 
-🔗 Link MEGA:  https://bit.ly/3ueugeZ
+🔗 Link MEGA:  https://bit.ly/3HjblaN
 
-🔗 Link Mediafire : https://bit.ly/3uepiza
+🔗 Link Mediafire : https://bit.ly/3BnHlXu
 
-🔗 Link direto : https://bit.ly/3Uls3ZO
+🔗 Link direto : https://bit.ly/3FEbLHm
 
 ➖➖➖➖➖➖➖➖➖
 
